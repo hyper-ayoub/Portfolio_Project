@@ -72,5 +72,18 @@ and in every place in the world we need in ecommerce website
 
 
 
+♥ Thanks to ♥
+
+
+
+
+![ALX](https://github.com/hyper-ayoub/Portfolio_Project/assets/133155846/b829e010-d5ec-41e4-bf3c-2b0ceb4d2a31)           ![image](https://github.com/hyper-ayoub/Portfolio_Project/assets/133155846/7e7bb378-4443-4b44-ac83-ac6d7e561a6d)
+
+
+
+
+
+
+
 
 
